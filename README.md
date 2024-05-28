@@ -1,4 +1,4 @@
-# [![TypingSVG](https://readme-typing-svg.demolab.com?lines=Hello!+👋;+You+Are+Welcome+To+My+Profile;My+Name+is++Kuma Agyei Evans;I+Am+Passionate+About+Coding;)](https://git.io/typing-svg)
+# [![TypingSVG](https://readme-typing-svg.demolab.com?lines=Hello!+👋;+You+Are+Welcome+To+My+Profile;My+Name+is++Evankum;I+Am+Passionate+About+Coding;)](https://git.io/typing-svg)
 
 # Hi I'm Kuma Agyei Evams 👋
 
